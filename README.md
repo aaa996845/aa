@@ -4,13 +4,18 @@
 
 我们一直都在，从未离开，感谢你的关注。
 
-官方下载地址：https://xgsp.lanzous.com/s/xgsp666
+官方下载地址：https://xgsp.lanzoui.com/s/xgsp6666
 
-备用下载地址：https://xgsp.lanzous.com/s/xgsp888
+备用下载地址：https://xgsp.lanzoui.com/s/xgsp8888
 
-备用下载地址：https://xgsp.lanzous.com/s/xgsp999
+备用下载地址：https://xgsp.lanzoui.com/s/xgsp9999
 
-备用下载地址：https://xgsp.lanzous.com/s/xgsp520
+备用下载地址：https://xgsp.lanzoui.com/s/xgsp1002
+
+备用下载地址：https://xgsp.lanzoui.com/s/xgsp1003
+
+备用下载地址：https://xgsp.lanzoui.com/s/xgsp1004
+
 
 如果下载地址失效，请等一会再来获取，我们会及时更新。
 
